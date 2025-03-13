@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **web development, entrepreneurship, and the intersection of technology and business.**
 
-- 📫 How to reach me **roshansuganthan56@gmail.com**
+- 📫 How to reach me **roshansugan56@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
